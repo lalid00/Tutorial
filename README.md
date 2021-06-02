@@ -1,1 +1,1 @@
-# Tutorial
+# Paragon
